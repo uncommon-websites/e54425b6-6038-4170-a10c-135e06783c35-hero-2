@@ -1,0 +1,2 @@
+# e54425b6-6038-4170-a10c-135e06783c35-hero-2
+Hero section variant 2 for e54425b6-6038-4170-a10c-135e06783c35
